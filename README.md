@@ -32,9 +32,9 @@
 
 飞兔云注册入口：
 
-[飞兔云官网注册入口](https://a.wwaann.com/?s=feitucloud)
+[飞兔云官网注册入口](https://a.ggddxx.com/?s=feitucloud)
 
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 
 ---
 
@@ -415,9 +415,9 @@
 
 飞兔云官方注册入口：
 
-[飞兔云官方注册入口](https://a.wwaann.com/?s=feitucloud)
+[飞兔云官方注册入口](https://a.ggddxx.com/?s=feitucloud)
 
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 
 使用提示：
 
